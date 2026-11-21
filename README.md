@@ -1,0 +1,1 @@
+# Absolut_Detail_case
